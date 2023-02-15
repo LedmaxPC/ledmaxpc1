@@ -1,2 +1,0 @@
-# ledmaxpc1
-xalidshikhverdiyev 
